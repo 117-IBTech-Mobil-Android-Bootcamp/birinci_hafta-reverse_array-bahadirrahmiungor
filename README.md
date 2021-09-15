@@ -1,0 +1,1 @@
+# birinci_hafta-reverse_array-bahadirrahmiungor
